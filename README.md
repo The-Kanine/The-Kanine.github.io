@@ -1,6 +1,6 @@
 ## Welcome to The-Kanine's page
 
-As of right now there is nothing of intrest here.
+As of right now there is nothing of interest here.
 
 
 ### Support or Contact
